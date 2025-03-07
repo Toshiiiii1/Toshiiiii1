@@ -1,1 +1,4 @@
-I don't need to smoke weed to get high because reading Haruki Murakami's books is an even better trip.
+Pretend you're happy when you're blue
+It isn't very hard to do
+And you'll find happiness without an end
+Whenever you pretend
